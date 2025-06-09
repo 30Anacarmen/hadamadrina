@@ -4,3 +4,4 @@
 # hadamadrina 4
 # hadamadrina dale paciencia a mi profe
 # hadamadrina dame a mi paciencia también
+# hadamadrina ten paciencia with me
